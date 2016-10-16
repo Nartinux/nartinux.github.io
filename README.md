@@ -1,1 +1,0 @@
-# nartinux.github.io
